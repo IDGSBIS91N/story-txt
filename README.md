@@ -82,5 +82,7 @@ hola, esta muy padre la historia
 Te amo Daniel - Chava
 Habia una vez un perrito llamado Pegamento. Un dia que iba caminando se calló y se pegό, fin.
 
+Homo estas?
+
 sobre un perro salchicha gordo que se cayo y se pego
 

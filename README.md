@@ -80,9 +80,10 @@ Se subían a los arboles
 Se comían a los pajaros
 hola, esta muy padre la historia
 Te amo Daniel - Chava
+
+Chuy ama a Daniel en secret
 Habia una vez un perrito llamado Pegamento. Un dia que iba caminando se calló y se pegό, fin.
 
 Homo estas?
 
 sobre un perro salchicha gordo que se cayo y se pego
-

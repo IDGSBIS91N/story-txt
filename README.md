@@ -2,6 +2,7 @@
 
 Una historia asi muy historica
 
+
 Dear Acer Support Team,
 
 I am writing this email to express my great disappointment regarding the Acer V5 laptop I recently purchased. Unfortunately, this device has not met my expectations in terms of performance and reliability. Although it was far more expensive than other models I considered, it has turned out to be considerably worse in several key aspects.
@@ -78,3 +79,4 @@ hola, esta muy padre la historia
 Te amo Daniel - Chava
 Habia una vez un perrito llamado Pegamento. Un dia que iba caminando se calló y se pegό, fin.
 
+sobre un perro salchicha gordo que se cayo y se pego

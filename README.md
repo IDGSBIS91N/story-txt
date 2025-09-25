@@ -2,6 +2,9 @@
 
 Una historia asi muy historica
 
+ hola soy fer
+
+
 hola soy drea
 
 
@@ -92,4 +95,5 @@ Homo estas?
 sobre un perro salchicha gordo que se cayo y se pego
 
 pplon
+
 

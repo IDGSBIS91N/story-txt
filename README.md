@@ -2,6 +2,9 @@
 
 Una historia asi muy historica
 
+hola soy drea
+
+
 
 En la era de las maquinas donde los humanos dejaron de ser un concepto aparece de la nada un humano causando intrga en las entidades metalicas que ya habian aceptado la extincion de los humanos
 
@@ -89,3 +92,4 @@ Homo estas?
 sobre un perro salchicha gordo que se cayo y se pego
 
 pplon
+

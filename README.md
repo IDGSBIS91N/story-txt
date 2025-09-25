@@ -93,3 +93,4 @@ sobre un perro salchicha gordo que se cayo y se pego
 
 pplon
 
+La canción Cahuates Pistaches es una pieza popular mexicana que retrata la vida cotidiana de los vendedores ambulantes. Su origen se encuentra en la tradición urbana de quienes recorrían las calles ofreciendo botanas como cacahuates y pistaches en charolas, con un pregón que servía como llamada distintiva. El tema mezcla humor y sencillez, transmitiendo la energía alegre de la cultura callejera. Más que una simple melodía, se convirtió en un reflejo del ingenio popular y la picardía mexicana, donde lo común y lo humilde se transforman en música contagiosa. Su carácter festivo la mantiene vigente en celebraciones y recuerdos.
